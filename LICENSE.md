@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket AI-powered Strategy: arbitrage-detection & take-profit-orders, the #1 strategy. Includes arbitrage-detection and take-profit-orders
 
 
 
